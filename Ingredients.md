@@ -1,0 +1,1 @@
+ strawberries,cream, milk, vanilla, salt, and  sugar
