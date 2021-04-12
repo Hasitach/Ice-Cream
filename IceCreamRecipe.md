@@ -1,0 +1,8 @@
+This strawberry ice cream is the freshest of fresh. Its so creamy and has the perfect fresh strawberry flavor. You will use 2 cups of diced strawberries, pureed up in a blender to make the ice cream totally smooth. But if you want it a little chunkier, with pieces of strawberries throughout then you can just mash the strawberries with a potato masher, or forks instead.
+ mix your choppedstrawberries with some of your sugar in a medium sized bowl. This helps the strawberries release some of their natural juices. Then you can blend that mixture up. Blend it as smooth as you want it, though you don’t want the pieces of strawberry to be too big, as they usually get a bit icy.
+
+Then add your strawberries, heavy cream, milk, vanilla, salt, and remaining sugar into a large bowl to mix them all together. Then pour that strawberry mixture into the ice cream maker. Run the ice cream maker according to the manufactures instructions (mine just takes about 30 minutes). 
+
+If you want to eat it right away, it’ll be the consistency of soft serve right after its done in the ice cream maker. You can have homemade strawberry ice cream in only about 40 minutes! But I prefer to freeze it for a few hours (or overnight) in a bread pan or ice cream holder for a few hours (or overnight) and you’ve got nice scoopable ice cream, like I have pictured. 
+
+The strawberries give the ice cream the perfect light pink color. Its such a pretty pink, but if you want it really dark you’re welcome to add a couple drops of red food coloring to the mix as well.
